@@ -1,4 +1,4 @@
-## Tell a Story , Write a Blog Post! ##
+## Tell a Story , Write a Blog Post!
 
 # Why Blogging?
 * Being better - You'll be so much better at a skill when you start writing about it, as it involves researching a topic, formulating your approach and presenting in a way that a majority of people can understand
